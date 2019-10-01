@@ -2,8 +2,8 @@
 
 
 
-yall dumb
-penguins cant deduce
-chees plane
+* yall dumb
+* penguins cant deduce
+* cheese plane
 
 vee is talented btw :^)    
